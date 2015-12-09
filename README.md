@@ -17,6 +17,8 @@
 * Tuff - looking nice or cool similar to dope
 * Jone/Fry/Bake/etc - to talk about someone
 * Cop - to buy or get something new
+* That's the move - a good course of action
+* Cook - to insult or talk down about
 
 ##Examples:
 * She jih cute. I'm finna go smack.
