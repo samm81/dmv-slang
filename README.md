@@ -1,4 +1,5 @@
 #DMV Slang Dictionary
+* DMV - DC/Maryland/Virginia Area. Consists of DC and surrounding suburbs.
 * Sice / Siced - to hype or over exaggerate
 * Pressed - overly excited over something/someone
 * Stamp/Bet - to agree with something, "ok"
@@ -19,6 +20,7 @@
 * Cop - to buy or get something new
 * That's the move - a good course of action
 * Cook - to insult or talk down about
+* Hip - to be "in the know." Often used in a literal sense, eg "I got him hip about the sale"
 
 ##Examples:
 * She jih cute. I'm finna go smack.
