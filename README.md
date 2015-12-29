@@ -22,6 +22,7 @@
 * Hip - to be "in the know." Often used in a literal sense, eg "I got him hip about the sale"
 * Bricks - a long time "this is gonna take bricks"
 * Mission - a hard task "making dinner a mission, just gonna microwave a burrito instead"
+* Move - as in "that's the move" or "what's the move". A good course of action.
 
 ##Examples:
 * She jih cute. I'm finna go smack.
