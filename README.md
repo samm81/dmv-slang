@@ -3,7 +3,6 @@
 * Sice / Siced - to hype or over exaggerate
 * Pressed - overly excited over something/someone
 * Stamp/Bet - to agree with something, "ok"
-* Bama - a whack/rachet person
 * Moe - nickname for anybody/everybody
 * Blown - mad or pissed
 * Loafin - you taking forever or not taking advantage of an opportunity
