@@ -23,6 +23,8 @@
 * Bricks - a long time "this is gonna take bricks"
 * Mission - a hard task "making dinner a mission, just gonna microwave a burrito instead"
 * Move - as in "that's the move" or "what's the move". A good course of action.
+* Scoop - to pick someone up. "oh you have the car? Scoop me then"
+* Match - asking someone to bring their own shit to a sesh. So if you have a gram of weed and you tell someone "match a dub" that means they match a gram and you smoke together
 
 ##Examples:
 * She jih cute. I'm finna go smack.
